@@ -183,3 +183,61 @@ STRONGER THAN YOU 74109325185963
 
 81280681787635 shucks
 
+104449595639237 black knife remixxer i think
+
+80366561193643 hopes and dreams
+
+124928120639248 his theme
+
+128522268959634 DEAR GOD ITS HARDTALE SANS
+
+126101283149087 havent checked if this works but its "THE WORLD REVOLVING" jevil's theme
+
+130333593184082  garden of hopes and dreams
+
+85951579741526 the chase
+
+119514747036826 flower man
+
+78687071861074 deltarune THE THEME
+
+99319593414519 its raining somewhere else
+
+139699907778380 THE TITAN, GUARDIAN, HELL OF THE ROARING
+
+91203761863073 dialtone
+
+133751550915945 my castle town
+
+86872598969817 spamton shop
+
+128807002162124 running sky
+
+78377450170348 ITSSSSSS TTEEE VEEEE TIME!!! (NOT THE BATTLE THEME)
+
+86703967239829
+
+105000479529169 hey. its me. its verity.
+
+127082158081499 that one chill japanese song
+
+129518297821133 bang bang bang (very quiet)
+
+85606540666879 im in the thick of it
+
+83233714346357 gg frigging ez
+
+76763211904207 gone angels...
+
+77579718926500 patches of violet
+
+121362870934260 you are an idiot remix thingy
+
+87086655151940 does tiktok connect to my wifi, so is tikitikitiki
+
+72181864745296 boss music idk
+
+122933134275091 JESUS CRHIST
+
+70754773238297 MOMMY ASMR ON ROBLOX
+
