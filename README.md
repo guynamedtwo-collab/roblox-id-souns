@@ -100,3 +100,86 @@ STRONGER THAN YOU 74109325185963
 119062536537051 - FAKE FATAL N34
 
 117443588033603 - HELL GIRL 2000
+
+136438088630687 megalovania rareized
+
+140182321775916 OUTCOME
+
+126602437560192 last bell of lucidity
+
+133517802779462 green hill zone
+
+116843623732343 MEGALOGORE
+
+100536902103011 WAR WITHOUT REASON
+
+86000052027672 looping the rooms
+
+99502393939590 megalo strike back
+
+110788401793874 BEST ROBLOX AUDIO KNOWN TO MAN KIND OH MY GOD PLEASE USE THIS
+
+104172457136191 its... raining tacos, right roblox? lets do this our way...
+
+90256750115455 HOODSTRAP REMIX
+
+85299298023415 harken theme
+
+128060285666794 DO YOU WANT TO BECOME A [[BIGSHOT]] ???, NOWS YOUR CHANCE!
+
+127215745764973 let LOVE shape the knife (undertale slop 100 yay i love ut slop)
+
+88050331395207 wega challenge thingy
+
+71054106555328 undertale electro swing mix
+
+120968328156745 please dont use this
+
+73972570177022 stealing from da imperfectnore
+
+116723113985378 epic sonic boss battles
+
+73813658244155 DOWNPOUR (weathergirl)
+
+84915241978537 papyrus exe room
+
+101414713099870 W EMOTES
+
+101598365847186 dusttale the murderer
+
+120187702909985 nostalgia
+
+87832758720863 DOMAIN TENKAI, MALEVOLENT SHRINE WAIT THIS THEME IS GOOD HOLY SHIT
+
+139694347701950 forsaken lms slop
+
+138503912221373 remains of robloxias soundtrack? im taking this
+
+93875882641227 DUST NEVER ENDS (random dusttale theme some guy made)
+
+104971563614057 megaphobia
+
+121478669042080 pursuer from forsaken
+
+107422347561984 wii mii channel
+
+88781024134681 MORE FORSAKEN SLOPPP
+
+127503727384559 pumpkicked (sounds indie enough to be put here)
+
+86050413585904 doom enternal soundtrack
+
+89332334177230 IM FUCKING CRASHING OUT GRRR
+
+100863804622729 im captain clark, welcome to the backrooms
+
+112948256817153 refrigerator, yes thats literally it, the sound of a refrigerator
+
+118759837130012 GOSH DANG IT I GOT RICKROLLED IN ROBLOX
+
+100044850749906 if baldi had a chase theme
+
+79305115545885 death siren outcome memories ost???? what is this real
+
+81280681787635 shucks
+
