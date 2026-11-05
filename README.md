@@ -256,3 +256,168 @@ STRONGER THAN YOU 74109325185963
 126935255549249 domain expansion: er ere rerere rer
 
 128830409645703 creation of... sans? megalovania
+
+85267696521344 hell girl 1999 yeah
+
+128886297591159 idk which femtanyl song this is
+
+116704489332329 im killing myself
+
+133982788742659 its the end. you are filled with... DETERMINATION!
+
+81662170223359 imposter syndrome
+
+129628130172181 old ass adrian chistian meme
+
+109115991512533 lord verity
+
+82057571662059 verity horror skunk one
+
+116267509778495 skeletal shenanigans
+
+119082892795380 excuse me sir... (CHARLIE'S INFERNO)
+
+108173786152463 we are... charlie kirk???? what the fuck where did i find this
+
+109337680029292 Grand theft ear killer 9000
+
+76400196481599 tung tung tung the last sahur (finale + brainrot funk thingy)
+
+112273223695349 is that a gubby PHONKK BOIII
+
+101064477322884 gubby this gubby that
+
+75739568327593 verity, always WINS!
+
+110919391228823 can we kill whoever made this a popular meme
+
+86317637164248 i like that kind of misery the one kind you were nice to me
+
+113944737691991 simply walk around it! (please kill me i bro)
+
+75587466442607 cry for me
+
+83898522809636 born a hero, hero? tail lights out
+
+137501501768494 ishowspeed crashing out
+
+6874146452 FNF be like
+
+7108812361 oh god bro what
+
+1836780219 i mean its nothing interesting but its good for fights i guess
+
+8131285439 this... what... is this feeling...? its... nostalgia? (teen titans)
+
+292416675 whistle
+
+-----------------------------------------------------
+|           i stole these lmao                      |
+-----------------------------------------------------
+
+Through Patches of Violet: 77579718926500
+
+Through Patches of Violet (male): 113028859907598
+
+Through Patches of Violet (instrumental): 76760458012018
+
+Hero: 121052332073884
+
+TianTian: 100986964147077 (sped up)
+
+SAIKAI: 79262785467239
+
+Battle Themes (EIM Studio)
+
+Canto 1 / RR5 Theme: 106427922641299
+
+Middle Theme: 74651855768533
+
+Heishou Pack Theme: 104075422620005
+
+La Manchaland Carnival: 97293797130865
+
+La Manchaland Entrance: 83360819591334
+
+Distorted Heathcliff: 90975018893583
+
+Bamboo Hatted Kim: 102934793463361
+
+Jia Qiu theme 2: 84327260239315
+
+Lei Heng Theme : 77697982045200 (best)
+
+Pequod Trio: 133197443205618
+
+Manchegan Trio: 118236444546840
+
+Dulcinea: 101079695692424
+
+Heathcliff?: 73239189740658
+
+Erlking: 108181978983070
+
+Matthias: 134960024380482
+
+Callisto: 99154704003183
+
+Lucio (rip Valencina): 80003798366539
+
+The Roach Emperor: 115694024309784
+
+A Certain Sinclair: 135597686248357
+
+Gregor Pass On: 140571874970788
+
+Ryoshu Pass On: 79653299111301
+
+Distorted Mayors (Rebelión de las Masas): 106622682425555
+
+Neutral01: 110116439883214
+
+First Warning: 80089353146928
+
+Second Warning: 126223357066110
+
+Third Warning: 84479141313194
+
+Gebura Core Suppression: 128399206386631
+
+String Theocracy: 104070600940726
+
+Iron Lotus: 70429099571697
+
+Children of the City: 88682324714857
+
+Gone Angels: 76763211904207
+
+AtIHNM: 107876457918864
+
+From a Place of Love: 104225874242906
+
+Malkuth 131937742510566
+
+Yesod 136371297458182
+
+Hod 126699144805286
+
+Netzach 121910554823324
+
+Tiphereth: 137453681210070
+
+Gebura: 107992728229480
+
+Chesed: 120386035909431
+
+between two worlds- 112941516097536
+
+_____________________________________________________________________
+|                                                                    |
+|                this is to push off the limbus/project moon stuff   |
+|____________________________________________________________________|
+
+96357207714662    - stronger than you (Chara)
+
+128857183932211 - JJK opening 3 (AIZO)
+
+
