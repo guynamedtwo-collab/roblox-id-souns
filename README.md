@@ -419,4 +419,190 @@ between two worlds- 112941516097536
 
 128857183932211 - JJK opening 3 (AIZO)
 
+-----------------------------------------------------------------------------
+                  megalovanias
+-----------------------------------------------------------------------------                  
 
+89135045680633 weird route megalovania
+
+120838650095309 susie megalovania
+
+75798817913528 megalomania (dust sans theme i guess)
+
+131013432451586 yes
+
+96848319868058 mega(lo)drive
+
+88015508848357 glitchtale episode 1 sans fight
+
+115761251029113 megaloutdate
+
+106734318865862 dusttale megalo
+
+123555620474546 megasterio
+
+118133171673137 GOD (a engineer gaming megalo)
+
+140033918870703 megalostep
+
+83165840816615 battle against a true megalomaniac
+
+75907559522442 megalovania fnf
+
+89916520794171 bonely finale
+
+101730223568557 fell sans theme
+
+137336446570524 mirror match (mirrored insanity i think)
+
+97314064471705 ulc megalovania type thingy
+
+82054489140740 godtale slop (alpha sans)
+
+136014156906267 stardust (outerdust)
+
+112686312301451 not a slacker. not anymore
+
+86285906231483 this is your FINAL SAVE!
+
+96012326643519 blackhole m87
+
+77083997067721 vhs phase 3
+
+118714179756665 ink sansy
+
+109404847273700 forced grin?
+
+110251512380530 start running yay
+
+84070088457006 PHOTOSHOP FLOWEY
+
+130696404745829 flower man remixxy
+
+95680085272992 i dont fucking know which au this is
+
+122422045407862 vhs sans phase 1 slopp broo let this go
+
+102814700026417 EVIL SANS THEME OH GOD RUN
+
+97941428700453 IM NOT FALLING FOR THAT SHIT! (too far papyrus)
+
+93908840815574 hyperdust sans i think
+
+86699486602991 killer sans phase 2 oh ok
+
+87409189010768 song that plays when you fight sans fantrack
+
+88871010863020 I AM THE X EVENT overwrite (crosssans/ccrosschara)
+
+119832599128524 its a time paradox
+
+112141113391948 hit where, under there! hahahaha (i found a fucking gold mine bro jesus im eating good)
+
+118325539349483 consequences for your actions
+
+111847783056177 possession sans
+
+87124948204049 pyrosommi
+
+81661305811049 MINDLESS, SOULLESS
+
+110523735767058 colourless (idk which one this is)
+
+97504329639289 luminious
+
+99400257640456 devil (story shift chara)
+
+112747379963610 insatisable
+
+95794927794366 final save other version
+
+122370372562742 is this garfield sans
+
+131590322183736 idk
+
+122062785346495 dont forget...
+
+106216260452248 step up!
+
+131913726136854 dust sans theme (waterfall)
+
+72510845852845 sans RAPPP (idk bro)
+
+88059047994896 GODSLOP 222 (omnipotent sans)
+
+127181656369975 autophobia
+
+92496622421721 rain? iddk bro
+
+117139554481103 I AM THE skeleton TOO! AHAHAHAHAHA
+
+83918742764188 locked (idk)
+
+103583442834397 facing demonsssszz
+
+124695787248849 thanatophobia
+
+136708856919192 not a megalovania but ok (another medium)
+
+98106692246745 humor
+
+116356812897571 confrontation
+
+73236953831473 is this sudden changes?
+
+129867979992545 bad time trio larp theme IM CRINE 😭
+
+135247091792165 ulc joking aside
+
+126869595706126 underfell sanas ahhh
+
+138228730572463 core
+
+96485951268444 hey who slipped petal dance in here
+
+106474872998538 battle against a true hero
+
+74541847059966 please kill me bro this god slop is killing me
+
+124050037948699 EPICTALE SANS OH SHIT ITS GOOD OHHH MY GOD OHH PLEASE USE THIS (LYRICS)
+
+118088184306396 soulunary
+
+125650844691687 hotty idk
+
+96671572015785 wtf flower girl?
+
+109296070945170 knock down
+
+88245530006936 nihilism
+
+86398871740334 AM I RIGHT LADS?
+
+122292314165248 its dusting somehwere else
+
+86582062251856 boneless stream
+
+132631943446758 LETS GET DOWN TO BUISINESS (green gaster)
+
+112826760414870 (shop)
+
+80530516712442 scapegoat
+
+124919117415025 lunatic
+
+112243796536803 toasted edge
+
+75812597158527 left hand judgement
+
+71976411572265 tf you mean the uploader of this doesnt know what it is (insanity?)
+
+79121252663482 face
+
+95312242498398 error sans
+
+103674653191462 fresh sans
+
+78368445861935 pure's error sans theme i think
+
+79583063289850 joking aside majecticcc wooo
