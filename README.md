@@ -615,8 +615,6 @@ between two worlds- 112941516097536
 
 133738281638228 reflect
 
-118088184306396 solunary sans
-
 126869595706126 catastrophe fell sans
 
 103833347792509 FAME (tenna winga yay)
