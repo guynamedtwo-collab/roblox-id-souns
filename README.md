@@ -459,7 +459,7 @@ between two worlds- 112941516097536
 
 82054489140740 godtale slop (alpha sans)
 
-136014156906267 stardust (outerdust)
+136014156906267 stardust (outerdust) (FUCK NEVER MIND IS JOTARO SANS LMAO)
 
 112686312301451 not a slacker. not anymore
 
@@ -487,7 +487,7 @@ between two worlds- 112941516097536
 
 97941428700453 IM NOT FALLING FOR THAT SHIT! (too far papyrus)
 
-93908840815574 hyperdust sans i think
+93908840815574 93908840815574 hyperdust sans i think
 
 86699486602991 killer sans phase 2 oh ok
 
@@ -621,8 +621,29 @@ between two worlds- 112941516097536
 
 70519812958114 am i right lads real part 2
 
+112216561859180 pyschomania
+
 80000572357763 help from the void phase 4  part 2
 
 137784863900736 help from the void phase 4 part 1
 
 86692370064857 interstellar
+
+84070088457006 your worst nightmare
+
+77585398571105 varitage
+
+71813943335320 siroaized
+
+101709345007495 EGO DEATH, IDUTSHANE
+
+133738281638228 reflect
+
+124919117415025 lunatic
+
+125182057056705 save p
+
+97671527763375 sansational illness
+
+108772422757971 striking the demon down
+
